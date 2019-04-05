@@ -1,0 +1,1 @@
+# amugo888.github.io
